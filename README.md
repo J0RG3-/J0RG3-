@@ -6,4 +6,4 @@ la atención la tecnología y la informática, y estoy en camino a convertirme e
 de poner en práctica lo que he aprendido hasta ahora. 
 
 📫 Si deseas contactarme puedes hacerlo a través de mi perfil en LinkedIn: 
-https://www.linkedin.com/in/jorge-cisterna-calderón 
+https://www.linkedin.com/in/jorge-cisterna-calder%C3%B3n-372b471b3/ 
